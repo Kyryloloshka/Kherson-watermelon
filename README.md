@@ -1,2 +1,0 @@
-# Kherson-watermelon
-херсонський кавунчик
